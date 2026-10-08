@@ -32,3 +32,10 @@ Créer et développer le **mouvement HERA** : accompagner des femmes à construi
 
 ## Où j'en suis aujourd'hui
 Je lance le mouvement HERA.
+
+## Mon profil (la personne derrière HERA)
+- **Parcours** : 7 ans dans l'industrie, puis arrivée chez Belles Sœurs par envie de prendre soin de moi autour du rituel, avec des produits de qualité et premium.
+- **Quotidien** : maman en congé, je m'occupe principalement d'Aron. Je profite des 2 jours de crèche pour travailler sur mes projets pros.
+- **Instagram** : compte existant **@Greta.sansfiltre**. Idée de créer un compte dédié « communauté HERA ».
+- **À l'aise sur les réseaux** : oui.
+- **Ma vibe** : solaire, directe, cash.
