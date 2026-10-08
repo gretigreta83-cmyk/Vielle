@@ -43,4 +43,4 @@ Je lance le mouvement HERA.
 ## Mes mots clés (à utiliser tels quels)
 **Humain · Entrepreneuriat · Réussite · Audace**
 
-Univers visuel : **3 couleurs seulement** : bleu paon (#0B5C6E), rose (#EBA6BB), doré (#D9A441). Pas d'autres couleurs.
+Univers visuel : **3 couleurs seulement** : bleu paon lumineux (#1F8A9E), rose doux féminin (#F7B2C8), doré clair (#EBCB7A). Textes en encre bleu nuit (#0C3B46) ou blanc.
