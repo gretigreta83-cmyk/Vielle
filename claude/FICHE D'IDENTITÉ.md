@@ -39,3 +39,8 @@ Je lance le mouvement HERA.
 - **Instagram** : compte existant **@Greta.sansfiltre**. Idée de créer un compte dédié « communauté HERA ».
 - **À l'aise sur les réseaux** : oui.
 - **Ma vibe** : solaire, directe, cash.
+
+## Mes mots clés (à utiliser tels quels)
+**Humain · Entrepreneuriat · Réussite · Audace**
+
+Univers visuel souhaité : bleu paon, rose, doré.
